@@ -1,6 +1,6 @@
 Writing Time
 
-4:00 a.m.
+4:00 a.m. 
 The green light flashes.
 Too soon to wake,
 the neitherland
